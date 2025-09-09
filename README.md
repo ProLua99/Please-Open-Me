@@ -1,2 +1,0 @@
-# Please-Open-Me
-Letter
